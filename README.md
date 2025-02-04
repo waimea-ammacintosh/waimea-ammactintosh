@@ -11,6 +11,6 @@ I enjoy many things including Lego, Reading, Mountain Biking, Tramping, and a bi
 I have my ameuter radio licence and that is quite fun. I also do Fencing and Archery as sports and they are also very fun.
 
 ## Social Media
--[Instagram](https://www.youtube.com/watch?v=xvFZjo5PgG0)
--[Youtube](https://www.youtube.com/watch?v=xvFZjo5PgG0)
--[Tiktok](https://www.youtube.com/watch?v=xvFZjo5PgG0)
+- [Instagram](https://www.youtube.com/watch?v=xvFZjo5PgG0)
+- [Youtube](https://www.youtube.com/watch?v=xvFZjo5PgG0)
+- [Tiktok](https://www.youtube.com/watch?v=xvFZjo5PgG0)
